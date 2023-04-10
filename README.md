@@ -1,5 +1,3 @@
 # Community Classroom is OP
 
-- Arkoprovo Datta says that this community is amazing.
-- More power to Arko. Love the work which you are doing for the community.
-- Finally learned Github
+- Success doesnot means the absence of the problem but its the overcoming the problems. Success is not measured by how high we go up in life,but how many times we fall and rise again. have you ever wondered why some people are more successful than others? It is no secret -they simply think and act more effectivelu. they have mastered the principles of success . Positive behaviour comes effortlessly. This book is to empower the power of positive thinking , but have you ever heard of the power of negative thinking? power of positive thinking , empowers you with a will power of negative thinking.
